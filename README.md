@@ -1,4 +1,4 @@
-# Hola, soy Masao 👋
+# Haciendo lo mejor con lo que hay. 🧑🏽‍💻
 
 Estoy aprendiendo sobre el mundo tech.
 
