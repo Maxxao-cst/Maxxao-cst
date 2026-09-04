@@ -1,4 +1,4 @@
-# Haciendo lo mejor con lo que hay. 🧑🏽‍💻
+# Soy estudiante en Hybridge sobre la ingenieria en desarrollo de sotware. 🧑🏽‍💻
 
 Estoy aprendiendo sobre el mundo tech.
 
